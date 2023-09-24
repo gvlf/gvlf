@@ -1,0 +1,5 @@
+- Hii, it's me, gvlf!
+- Welcome to my profile!
+- I'm learning, so expect me to do some small projects, and they should probably have many bugs.
+- I'm thankful for any contributions!
+- <33
